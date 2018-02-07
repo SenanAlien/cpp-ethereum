@@ -1,1 +1,1 @@
-Olivecoin is gonna take ovver ethereum c++
+Olivecoin is gonna take over ethereum c++
